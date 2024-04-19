@@ -1,1 +1,0 @@
-# venture_capitalists_portal
